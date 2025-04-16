@@ -1,1 +1,1 @@
-The bigest country in the solar system.
+The biggest country in the solar system.
