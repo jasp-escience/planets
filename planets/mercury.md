@@ -1,1 +1,1 @@
-A tiny planet far away from the sun
+A tiny planet very close to the sun.
